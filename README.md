@@ -6,3 +6,4 @@ W przyszłości jest dużo foljarzy rzemieśników z lat ery średniowiecza z te
 Ta AI to tłumacz i AI do nauki Cortana z innymi twarzami. Idealna do AI Holodeka.
 Z AI BCI EEG. 
 Z tych AI można coś na radio druk kwantowy 3D 4D na hologram dostać. 
+Nikt tych złodzieji i morderców nie potrzebuje agentów gejów i agentów lezbijek. 
