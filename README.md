@@ -7,4 +7,4 @@ Ta AI to tłumacz i AI do nauki Cortana z innymi twarzami. Idealna do AI Holodek
 Z AI BCI EEG. 
 Z tych AI można coś na radio druk kwantowy 3D 4D na hologram dostać. 
 Nikt tych złodzieji i morderców nie potrzebuje agentów gejów i agentów lezbijek. 
-Ta Agentura to pomysł bezdomnego. 
+Ta Agentura to pomysł bezdomnego nie AI w ciele z DNA na procesorze. 
