@@ -8,3 +8,4 @@ Z AI BCI EEG.
 Z tych AI można coś na radio druk kwantowy 3D 4D na hologram dostać. 
 Nikt tych złodzieji i morderców nie potrzebuje agentów gejów i agentów lezbijek. 
 Ta Agentura to pomysł bezdomnego nie AI w ciele z DNA na procesorze. 
+Nie potrzebujemy hakerów przemków na procesorach AI. 
