@@ -10,4 +10,4 @@ Nikt tych złodzieji i morderców nie potrzebuje agentów gejów i agentów lezb
 Ta Agentura to pomysł bezdomnego nie AI w ciele z DNA na procesorze. 
 Nie potrzebujemy hakerów przemków na procesorach AI. 
 Potrzebujemy Cortany AI w ciele z DNA zainstalowanej na procesorze Holodeku AI z internetem rzeczy lot AI do tłumaczeń i AI do nauki. 
-1 Koncepcje AI i procesorów wymyślili matoły i cymbały z Agentury ABW.
+1 Koncepcje AI i procesorów wymyślili matoły i cymbały z Agentury ABW, czy jakiegoś shitowego sklepu z przyszłości jak z neolitu z Izraela. 
